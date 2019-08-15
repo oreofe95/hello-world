@@ -1,2 +1,3 @@
 # hello-world
-dear future me, this is the first time and first thing you did when you created this account.
+Dear future me, this is the first time and first thing you did when you created this account.
+So i am going to laugh at myself someday after reveiwing this sometime in the future.. hoping for a bright future...
